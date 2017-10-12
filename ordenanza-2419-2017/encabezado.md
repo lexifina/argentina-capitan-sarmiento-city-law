@@ -1,0 +1,5 @@
+Ordenanza Nº2419/17
+Ordenanza Nº 2419/17
+Capitán Sarmiento, 31/07/2017
+ORDENANZA
+ORDENANZA NRO. 2419/2017
