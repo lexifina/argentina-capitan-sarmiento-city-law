@@ -1,0 +1,5 @@
+Ordenanza Nº2431/17
+Ordenanza Nº 2431/17
+Capitán Sarmiento, 18/09/2017
+ORDENANZA
+ORDENANZA NRO. 2431/2017
