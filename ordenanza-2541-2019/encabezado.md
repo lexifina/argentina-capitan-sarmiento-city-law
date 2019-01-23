@@ -1,0 +1,5 @@
+Ordenanza Nº2541/18
+Ordenanza Nº 2541/18
+Capitán Sarmiento, 27/12/2018
+ORDENANZA
+ORDENANZA NRO. 2541/2018
