@@ -1,0 +1,5 @@
+Ordenanza Nº2452/17
+Ordenanza Nº 2452/17
+Capitán Sarmiento, 17/10/2017
+ORDENANZA
+ORDENANZA NRO. 2452/2017
