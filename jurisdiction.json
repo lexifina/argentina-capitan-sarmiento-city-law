@@ -1,0 +1,11 @@
+{
+  "path": "ar-b-capitan-sarmiento",
+  "code": "AR-B-CAPITAN-SARMIENTO",
+  "name": "Capitán Sarmiento",
+  "level": "municipality",
+  "parent": "ar-b",
+  "repo": "https://github.com/lexifina/argentina-capitan-sarmiento-city-law",
+  "build": "built: municipal ordinances (172 ordinances, 172 versions) from https://sibom.slyt.gba.gob.ar/cities/20",
+  "language": "es",
+  "sources": 1
+}
